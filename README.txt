@@ -1,1 +1,1 @@
-Go to https://www.youtube.com/watch?v=T2MUBJF4PgA to watch the tech demo.
+Go to https://youtu.be/VfHci_vRseA to watch the tech demo.
